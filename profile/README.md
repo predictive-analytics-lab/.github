@@ -1,3 +1,3 @@
-## We have moved!
+## We have moved! 🚚
 
 New URL: https://github.com/wearepal
